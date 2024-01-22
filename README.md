@@ -1,2 +1,1 @@
-https://github.com/eduleoncio/portfolio-alura/assets/132500546/4fc05802-07c2-427a-9d37-e6b0ae295588
-
+![image](https://github.com/eduleoncio/portfolio-alura/assets/132500546/ae990804-830c-4fa3-bc73-7f16107d4d38)
